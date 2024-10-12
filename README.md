@@ -1,0 +1,6 @@
+- Yo I’m Vexten or Vex
+- I'm a teen who likes breads and do animation and art stuff tege
+- I’m interested in learning animation, arts and more!
+- Pronouns: he/him or they/them
+- Fun fact: i love breads
+- My sexuality is: Non-binary, Bisexual, Demisexual and ofc Trans
